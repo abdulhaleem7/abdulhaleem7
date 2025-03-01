@@ -17,7 +17,6 @@ My name is AbdulHaleem Salaudeen, and I'm a self-motivated and passionate backen
 
 ### Get in touch :sparkles:
 - [GitHub](https://github.com/abdulhaleem7)
-- [Facebook](https://www.facebook.com/toriolafaidat.olabisi)
 - [Twitter](https://x.com/HaleemSalaudeen)
 - [LinkedIn](https://www.linkedin.com/in/abdulhaleem7/)
 
